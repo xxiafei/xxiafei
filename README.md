@@ -1,30 +1,42 @@
-i hate github how does this work man
+i hate github and making this every second even thiugh it sucks..
 
 
-![Untitled10_20250201040844](https://github.com/user-attachments/assets/9ba61b90-7c63-4f23-942e-3083b47be0e3)
+✦![IMG_6052](https://github.com/user-attachments/assets/29e25e34-a795-4ff4-83f8-1251c3089c74)
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎Halo *ou* Kairo *ou kins*
+✦
 
-‎ ‎ ‎
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎‎  ‎*4teen* - he / him ! .  *gemini* 
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎BPD *::* transmasc ...men love...heart
+𓏲⋆ ִֶָ ๋𓂃 ⋆ - names u can call me : lennox, kaizen, ren, xia fei, rinne, skate, felix, viktor, karl and more. I LOEV NICKANMEMSMS!!
+
+⋆｡° ✮ , - my pronouns are he / him, tho its okay if u call me a they / them.
+
+. ݁₊ ⊹ . ݁˖ - I'm 4teen, gemini boy born in the cool pride month june 🥶🥶..
+
+➢ ﹔୭ ˚. - i'm in many fandoms (animes, games, shows, etc.. i read bookss!)
+
+
+----
+
+
+links are old, and mostly unthemed.. i will deal with them in summer trust me now leage ,e alone..
+
+
+*signing link>*:wip..
+
+ [atabook!](https://callmeyourangel.atabook.org/)
+ 
+|| 
+
+
+*links to check out!!\:*
+wip..
+
+||
+
+[shared rentry with sol <3](https://rentry.co/sharedbetweengays)
 
 
 
 ---
-
-*link* (wip.):
-
- [ata](https://callmeyourangel.atabook.org/)
-
-
-
-[ everything is so outfated anduntheemed ugh. remake soon. this is poorly made if u cant tell :/...] 
-
----
-
-
-
 
 ***9.2024 ♡***
