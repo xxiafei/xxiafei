@@ -6,13 +6,15 @@ i hate github and making this every second even thiugh it sucks..
 ✦
 
 
-𓏲⋆ ִֶָ ๋𓂃 ⋆ - names u can call me : lennox, kaizen, ren, xia fei, rinne, skate, felix, viktor, karl and more. I LOEV NICKANMEMSMS!!
+𓏲⋆ ִֶָ ๋𓂃 ⋆ - names u can call me : lennox, kaizen, ren, xia fei, rinne, skate, felix, viktor, kairo, sakura and more (so many names i hate life???) . I LOEV NICKANMEMSMS!!
 
 ⋆｡° ✮ , - my pronouns are he / him, tho its okay if u call me a they / them.
 
 . ݁₊ ⊹ . ݁˖ - I'm 4teen, gemini boy born in the cool pride month june 🥶🥶..
 
 ➢ ﹔୭ ˚. - i'm in many fandoms (animes, games, shows, etc.. i read bookss!)
+
+ ݁₊ ⊹˚.✮ - my top fav charas are prob sakura (windbreaker) and xia fei (linkclick).. heh .. 🦄
 
 
 ----
