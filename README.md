@@ -17,6 +17,7 @@ i hate github and making this every second even thiugh it sucks..
  ݁₊ ⊹˚.✮ - my top fav charas are prob sakura (windbreaker) and xia fei (linkclick).. heh .. 🦄
 
 
+
 ----
 
 
@@ -42,3 +43,8 @@ wip..
 ---
 
 ***9.2024 ♡***
+
+
+![IMG_6054](https://github.com/user-attachments/assets/5ba89873-b1b9-4018-ace6-502923afa690)
+
+iloveeeeeeee youuuuuumssosmsmsmsollsoslmsmsm
