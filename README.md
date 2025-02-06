@@ -6,7 +6,7 @@ i hate github and making this every second even thiugh it sucks..
 ✦
 
 
-𓏲⋆ ִֶָ ๋𓂃 ⋆ - names u can call me : lennox, kaizen, ren, xia fei, rinne, skate, felix, viktor, kairo, sakura and more (so many names i hate life???) . I LOEV NICKANMEMSMS!!
+𓏲⋆ ִֶָ ๋𓂃 ⋆ - names u can call me : lennox, kaizen, ren, xia fei, kyu, skate, felix, viktor, kairo, sakura and more (so many names i hate life???) . I LOEV NICKANMEMSMS!!
 
 ⋆｡° ✮ , - my pronouns are he / him, tho its okay if u call me a they / them.
 
