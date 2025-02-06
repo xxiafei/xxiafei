@@ -32,9 +32,10 @@ links are old, and mostly unthemed.. i will deal with them in summer trust me no
 
 
 *links to check out!!\:*
+
+
 wip..
 
-||
 
 [shared rentry with sol <3](https://rentry.co/sharedbetweengays)
 
